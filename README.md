@@ -1,4 +1,4 @@
-Hi, I’m the-adblocker. \
+Hi, I’m the-adblocker. 
 
 
 "*mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmbeeeepbeeeepbeeeeeeeeeep*" - michael wave
